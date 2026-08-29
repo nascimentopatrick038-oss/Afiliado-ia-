@@ -1,2 +1,0 @@
-# Afiliado-ia-
-Afiliado ia 
